@@ -1,4 +1,4 @@
-
+stealth Scripts for blue lock rivals offers the most advanced blue lock rivals Script, with auto-collect and god mode. Perfect for dominating any
 
 
 
